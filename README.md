@@ -1,1 +1,0 @@
-# kopzz-beaty-salonzzz
